@@ -5,7 +5,7 @@ Email Me 👉 ✉️ **dk1184366@gmail.com** 😊😊
 
 - 🔭 **I’m currently Student:**
 - 🌱 **I’m currently learning:** B.tech in computer science 
-- 😄 **Pronouns:** Imran Sir
+
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 ## 🌐 Socials:
